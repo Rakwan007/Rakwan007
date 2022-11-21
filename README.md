@@ -10,6 +10,8 @@ https://www.youtube.com/@Rakwan
 https://www.facebook.com/rakwan.ali.77
 - My Account on telegram :
 https://t.me/RAKWANO
+- My Account on Instegram :
+https://www.instagram.com/rakwan47
 <!---
 Rakwan007/Rakwan007 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
